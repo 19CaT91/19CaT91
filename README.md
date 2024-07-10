@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Marcin Kototowski
+- 👀 I’m interested in Formula 1
+- 🌱 I’m currently learning programming front developer IT
+- 📫 How to reach me ... work in progress
+- 😄 Pronouns: CaT
+- ⚡ Fun fact: ...
